@@ -1,3 +1,4 @@
 # het verhaal in het kort 
 De eerste seizeon van de serie: november 2022 en dit jaar de tweede seizeon: augustus 2025.Wednesday is een meisje die vaak van school wordt gestuurd door haar gedrag. Haar ouders hebben besloten om haar in te schrijven op de middelbare school 'Nevermore Academy' waar zij ook hebben gezeten. Wednesday heeft een moeilijke karakter en daardoor kan ze niet omgaan met haar klasgenoten en dat brengt haar in vele uitdagingen.
+een perfecte serie!
 # genre: mysterie, detectivewerk en horor.
