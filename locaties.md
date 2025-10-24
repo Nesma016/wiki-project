@@ -1,0 +1,2 @@
+# locaties van het verhaal
+Nevermore Academy: een school voor weerwolven, vampiers, sirenes en gorgonen. De stad: Jericho: een fictieve stad in het verhaal waar de serie zich afspeeld. Addams family huis: flashback en bezoekmomenten. Psychiatric Hospital(seizon 2): een instelling voor duistere geheimen. Kampeerterrein (seizoen 2): gebruikt voor groepsactiviteiten en nieuwe dreigingen.
